@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **kpkuldeepmehta@gmail.com**
 
-- ⚡ Fun fact **I think I like MenduVada**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
